@@ -1,0 +1,1 @@
+# Yapay-Zekaya-Giri-Do-.-Dr.-Ali-Furkan-Kamanl-
